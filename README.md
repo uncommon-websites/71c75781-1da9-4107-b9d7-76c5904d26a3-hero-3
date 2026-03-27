@@ -1,0 +1,2 @@
+# 71c75781-1da9-4107-b9d7-76c5904d26a3-hero-3
+Hero section variant 3 for 71c75781-1da9-4107-b9d7-76c5904d26a3
